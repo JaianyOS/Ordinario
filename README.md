@@ -1,0 +1,3 @@
+|Termos |Descrição |
+-----------------------
+|variáveis |iufeigfcoihredflked
